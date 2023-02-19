@@ -55,6 +55,6 @@ any damage/threatment happend via script isn't developer's problem. using script
 
 #### ☕ | Contact us!
 - ***SqLoSt#6660*** - Discord May be  Closed , preferred option
-- **Our [discord server](https://youtu.be/dQw4w9WgXcQ)** (fixing)
+- **Our [discord server](https://discord.gg/aV2XGhRvup)**
 - **Our [YouTube Channel](https://youtube.com/channel/UCPXh6NqhJZpl_2oSpatFOFw)**
 
